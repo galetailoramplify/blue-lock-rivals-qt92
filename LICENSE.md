@@ -1,4 +1,4 @@
-#  
+#  Experience restaurant tycoon 3 like never before with new restaurant tycoon 3 Script, the #1 Script. Includes speed and infinite resources for
 
 
 
